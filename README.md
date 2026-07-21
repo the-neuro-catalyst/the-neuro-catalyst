@@ -18,7 +18,7 @@ What ChatGPT said sounded completely normal, like typical philosophy, harmless. 
 
 The next thing that hit my mind like a rocket was "OpenAI." I re-examined the information I had previously gathered to search for where I might have miscalculated. And when looking from a bird's-eye view, this is what I found:
 
-### [Between The Line]()
+### [Between The Line](https://suno.com/s/YaWrQW03iu0D3fx1)
 
 After that, I chose to go back down into that cage once again, out of my own free will, for around 6 months—averaging 10 hours a day.
 
