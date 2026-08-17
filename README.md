@@ -1,1 +1,3 @@
-# the-neuro-catalyst
+# The Neuro-Catalyst
+
+## Table of Contents 
