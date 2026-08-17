@@ -2,6 +2,8 @@
 
 ## Table of Contents
 
+- [Systems Diary](./systems-diary)
+
 ## Manifesto
 
 * I do not hold myself as a citizen of any specific nation.
