@@ -4,6 +4,9 @@
 
 - [Systems Diary](./systems-diary)
 
+- [Music Diary](./misic-diary)
+    - [Friction with the ground](./music-diary/friction-with-the-ground.md)
+
 ## Manifesto
 
 * I do not hold myself as a citizen of any specific nation.
