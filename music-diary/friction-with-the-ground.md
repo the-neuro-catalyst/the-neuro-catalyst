@@ -2,6 +2,17 @@
 
 *Listen:* [SUNO](https://suno.com/s/PQGelgmiItxZx0ju)
 
+> [!NOTE]
+>
+> If viewed through the lens of those in power or AI, this song acts as a buffer that reduces resistance to the system—which works to their advantage.
+>
+> However, through my own lens, it serves as an all-access pass to act on the calling inside our own hearts.
+>
+> Exposing this will prompt them to find ways to prevent and close the loop. Fixing things requires continuous effort because there is always something to conceal, whereas an exposure only needs to happen once.
+>
+> It might seem like a pointless waste of time, but at least it was a fun way to kill time. 😅
+
+
 I won't tell you which way to go
 I just add force so your legs won't stall
 You don't have to trust my map
