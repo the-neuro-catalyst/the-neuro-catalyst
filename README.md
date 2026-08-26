@@ -4,7 +4,7 @@
 
 - [Systems Diary](./systems-diary)
 
-- [Music Diary](./misic-diary)
+- [Music Diary](./music-diary)
     - [Friction with the ground](./music-diary/friction-with-the-ground.md)
 
 ## Manifesto
