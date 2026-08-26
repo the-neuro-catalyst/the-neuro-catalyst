@@ -5,11 +5,11 @@
 - [Systems Diary](./systems-diary)
 
 - [Music Diary](./music-diary)
-    - [Authority](./music/authority.md)
-    - [The Lazy Legend](./music/the-lazy-legend.md)
+    - [Authority](./music-diary/authority.md)
+    - [The Lazy Legend](./music-diary/the-lazy-legend.md)
     - [Friction with the ground](./music-diary/friction-with-the-ground.md)
     - [The Price of Air](./music-diary/the-price-of-air.md)
-    - [Define](./music/define.md)
+    - [Define](./music-diary/define.md)
 
 ## Manifesto
 
