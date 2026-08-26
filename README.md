@@ -7,6 +7,7 @@
 - [Music Diary](./music-diary)
     - [Friction with the ground](./music-diary/friction-with-the-ground.md)
     - [The Price of Air](./music-diary/the-price-of-air.md)
+    - [Define](./music/define.md)
 
 ## Manifesto
 
