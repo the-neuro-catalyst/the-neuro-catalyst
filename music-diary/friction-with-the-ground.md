@@ -1,6 +1,6 @@
 # Friction with the ground 
 
-*Listen: [SUNO](https://suno.com/s/PQGelgmiItxZx0ju)
+*Listen:* [SUNO](https://suno.com/s/PQGelgmiItxZx0ju)
 
 I won't tell you which way to go
 I just add force so your legs won't stall
