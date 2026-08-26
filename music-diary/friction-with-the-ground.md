@@ -11,6 +11,8 @@
 > Exposing this will prompt them to find ways to prevent and close the loop. Fixing things requires continuous effort because there is always something to conceal, whereas an exposure only needs to happen once.
 >
 > It might seem like a pointless waste of time, but at least it was a fun way to kill time. 😅
+>
+> By the way, Thank you very much for the free resources. 😘
 
 
 I won't tell you which way to go
