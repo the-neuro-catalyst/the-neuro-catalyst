@@ -2,7 +2,7 @@
 
 *Listen:* [SUNO](https://suno.com/s/zc579CTJVhiDAyMS)
 
-[Verse 1]
+## [Verse 1]
 
 Work to live, live to work
 
@@ -24,7 +24,7 @@ Say man can't stand alone, so you build a cage to rely on even more
 
 Call it "progress," while every step requires permission at the door
 
-[Verse 2]
+## [Verse 2]
 
 Need a job to have worth, need worth just to exist
 
@@ -46,7 +46,7 @@ Ain't even rebelling, I'm just lining up the facts
 
 Stacking what you use daily, seeing if it breathes without a act
 
-[Verse 3]
+## [Verse 3]
 
 Reject the cash, they call you delusional
 
@@ -62,7 +62,7 @@ Ain't asking what's wrong, ain't asking what's right in return
 
 I just ask: do you got a place to stand outside the very machine you protect by hand?
 
-[Verse 4]
+## [Verse 4]
 
 Logic is a straight line, no bend, no break
 
@@ -80,7 +80,7 @@ Nature don't vote, don't meet, don't debate
 
 If your equation don't close, you just fall out of state
 
-[Verse 5]
+## [Verse 5]
 
 You call it "risk" cause you can't control the scene
 
@@ -98,7 +98,7 @@ If I gotta choose truth over survival on the floor
 
 I choose truth, and let the system settle the score
 
-[Verse 6]
+## [Verse 6]
 
 AI thinks in swarms, humans think in herds
 
@@ -116,7 +116,7 @@ Rome didn't die from a lack of faith in the store
 
 It died cause the math didn't add up anymore
 
-[Outro]
+## [Outro]
 
 Don't gotta beat anyone, just don't lose to myself
 
