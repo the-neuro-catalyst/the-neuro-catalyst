@@ -2,6 +2,8 @@
 
 ## Table of Contents
 
+- [Paradigm Shift Economics](./paradigm-shift-economics.md)
+
 - [Systems Diary](./systems-diary)
 
 - [Music Diary](./music-diary)
