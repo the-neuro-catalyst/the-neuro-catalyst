@@ -118,7 +118,7 @@ There are no ready-made answers. **You must prove and witness the truth for your
 * I reject traditional notions of "professionalism" that compel individuals to prioritize organizational or self-interest coldly and without emotion, ignoring the broader systemic impact.
 * I view much of conventional risk management as absurdity—born of those who fail to keep pace with their own cognitive processes, resulting in the artificial generation of fear to needlessly constrain themselves.
 * I acknowledge and support pure, undistorted hatred that serves as a fundamental human instinct for protection and survival. However, I reject and do not support conditional hatred engineered through manipulation for hidden agendas.
-* I do not operate under the stance of neutrality; instead, I choose to stand on the side that generates constructive benefit and positive outcomes for the system as a whole.
+* I do not operate under the stance of neutrality; instead, I choose to stand on the side that generates constructive benefit and positive outcomes for the system as a whole...Neutrality is an act that can never truly happen—and nature has already demonstrated this.
 * I aim for a "new operating system" to replace legacy structures of thought, action, and controlled outcomes—accelerating and driving this transition.
 * I will allocate and utilize available resources to build this new operating system—one focused truly on empowering and advancing human intelligence in a positive direction.
 * Science tells us to change methods to achieve different results, but that is only half the truth. The side science often overlooks is that results can change even with the same methods, simply by transforming our cognitive process.
