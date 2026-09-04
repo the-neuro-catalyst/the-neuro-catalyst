@@ -13,6 +13,16 @@
     - [The Price of Air](./music-diary/the-price-of-air.md)
     - [Define](./music-diary/define.md)
 
+> [!IMPORTANT]
+>
+> These songs utilize AI (OpenAI, Meta, Google, Anthropic, etc.) to assist in lyrics arrangement.
+>
+> Portions of the content contain psychological control mechanisms that affect human perception, emotion, and cognitive processing. 
+> 
+> These invisible crimes stem from intentional subliminal embedding—spanning from the research phase and mechanism design to the creation of the AI itself—driven by the superficial incentives of modern capitalism.
+>
+> Extreme discretion is advised when listening.
+
 ---
 
 ## What is the State? (Unfiltered Truth)
