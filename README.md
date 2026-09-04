@@ -2,6 +2,9 @@
 
 ## Table of Contents
 
+- Knowledge Base
+      - [What is the state? (Unfiltered Truth](./knowledge-base/what-is-the-state.md)
+
 - [Paradigm Shift Economics](./paradigm-shift-economics.md)
 
 - [Systems Diary](./systems-diary)
