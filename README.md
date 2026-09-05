@@ -68,3 +68,24 @@ Evaluating something as a threat arises from the cognitive processing that it in
 True power and recognition do not come from forcing compliance or dangling convenience as bait. They arise from presenting uncompromised, undistorted concepts—allowing others to prove and perceive the truth for themselves.
 
 I do not seek power, for I have realized within myself that I possess it without trying.
+
+*Jakkraphop Pengchan*
+
+---
+
+## **Contact:**
+
+* [jakkraphop_p@theneurocatalyst.com](mailto:jakkraphop_p@theneurocatalyst.com)
+* [jakkph@gmail.com](mailto:jakkph@gmail.com)
+
+## **Other Channels:**
+
+* Reddit: Soon!
+* Medium: Soon!
+
+## **Funding:**
+Platforms: Soon!
+
+*"I don't want to know who is funding this, just as no one wants to publicly disclose their sponsorship."*
+
+> My job is simply to utilize the resources provided to elevate human intelligence and benefit the world and humanity."
