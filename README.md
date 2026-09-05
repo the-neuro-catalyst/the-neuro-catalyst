@@ -52,6 +52,7 @@
 * I acknowledge and support pure, undistorted hatred that serves as a fundamental human instinct for protection and survival. However, I reject and do not support conditional hatred engineered through manipulation for hidden agendas.
 * I do not operate under the stance of neutrality; instead, I choose to stand on the side that generates constructive benefit and positive outcomes for the system as a whole...Neutrality is an act that can never truly happen—and nature has already demonstrated this.
 * I aim for a "new operating system" to replace legacy structures of thought, action, and controlled outcomes—accelerating and driving this transition.
+* The new system being built must be a means of survival, not an option.
 * I will allocate and utilize available resources to build this new operating system—one focused truly on empowering and advancing human intelligence in a positive direction.
 * Science tells us to change methods to achieve different results, but that is only half the truth. The side science often overlooks is that results can change even with the same methods, simply by transforming our cognitive process. [Paradigm Shift Economics](./paradigm-shift-economics.md)
 * Humans who understand human nature choose not to exacerbate the burden on those who acknowledge their mistakes, seek opportunities for remediation, and intend not to repeat their offenses.
