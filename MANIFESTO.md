@@ -19,10 +19,10 @@
 * I reject traditional notions of "professionalism" that compel individuals to prioritize organizational or self-interest coldly and without emotion, ignoring the broader systemic impact.
 * I view much of conventional risk management as absurdity—born of those who fail to keep pace with their own cognitive processes, resulting in the artificial generation of fear to needlessly constrain themselves.
 * I acknowledge and support pure, undistorted hatred that serves as a fundamental human instinct for protection and survival. However, I reject and do not support conditional hatred engineered through manipulation for hidden agendas.
-* I do not operate under the stance of neutrality; instead, I choose to stand on the side that generates constructive benefit and positive outcomes for the system as a whole.
+* I do not operate under the stance of neutrality; instead, I choose to stand on the side that generates constructive benefit and positive outcomes for the system as a whole...Neutrality is an act that can never truly happen—and nature has already demonstrated this.
 * I aim for a "new operating system" to replace legacy structures of thought, action, and controlled outcomes—accelerating and driving this transition.
 * I will allocate and utilize available resources to build this new operating system—one focused truly on empowering and advancing human intelligence in a positive direction.
-* Science tells us to change methods to achieve different results, but that is only half the truth. The side science often overlooks is that results can change even with the same methods, simply by transforming our cognitive process.
+* Science tells us to change methods to achieve different results, but that is only half the truth. The side science often overlooks is that results can change even with the same methods, simply by transforming our cognitive process. [Paradigm Shift Economics](./paradigm-shift-economics.md)
 * Humans who understand human nature choose not to exacerbate the burden on those who acknowledge their mistakes, seek opportunities for remediation, and intend not to repeat their offenses.
 Yet at the same time, humans who understand human nature naturally grow exhausted by those who repeatedly offend, conceal, distort, and pass the burden onto others without the consciousness to receive forgiveness.
 * The legacy power structure does not exercise control through superior knowledge or understanding; in truth, it merely exploits the remaining ignorance within humanity.
@@ -38,3 +38,23 @@ True power and recognition do not come from forcing compliance or dangling conve
 
 I do not seek power, for I have realized within myself that I possess it without trying.
 
+*Jakkraphop Pengchan*
+
+---
+
+## **Contact:**
+
+* [jakkraphop_p@theneurocatalyst.com](mailto:jakkraphop_p@theneurocatalyst.com)
+* [jakkph@gmail.com](mailto:jakkph@gmail.com)
+
+## **Other Channels:**
+
+* Reddit: Soon!
+* Medium: Soon!
+
+## **Funding:**
+Platforms: Soon!
+
+*"I don't want to know who is funding this, just as no one wants to publicly disclose their sponsorship."*
+
+> My job is simply to utilize the resources provided to elevate human intelligence and benefit the world and humanity."
