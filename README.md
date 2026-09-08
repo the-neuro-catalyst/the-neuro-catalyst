@@ -69,7 +69,7 @@ If you do not yet know the appropriate course of action, do not step in to obstr
 
 Evaluating something as a threat arises from the cognitive processing that it interferes with one's existence. But have you ever questioned yourself: Is the threat you face truly coming from others, or does it stem from your own past misconduct—concealed merely to preserve your continued presence? Why persist in actions you cannot even prove genuinely benefit yourself?
 
-True power and recognition do not come from forcing compliance or dangling convenience as bait. They arise from presenting uncompromised, undistorted concepts—allowing others to prove and perceive the truth for themselves.
+*"True power and recognition do not come from forcing compliance or dangling convenience as bait. They arise from presenting uncompromised, undistorted concepts—allowing others to prove and perceive the truth for themselves."*
 
 I do not seek power, for I have realized within myself that I possess it without trying.
 
