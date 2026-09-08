@@ -16,10 +16,13 @@
     - [Friction with the ground](./music-diary/friction-with-the-ground.md)
     - [The Price of Air](./music-diary/the-price-of-air.md)
     - [Define](./music-diary/define.md)
+    - [พ่น (Exhale)](./music-diary/exhale.md)
 
 > [!IMPORTANT]
 >
 > These songs utilize AI (OpenAI, Meta, Google, Anthropic, etc.) to assist in lyrics arrangement.
+>
+> These mechanisms are built directly into the design (Attention Is All You Need, PyTorch, Transformers, and data training processes) and are intentional, not an accident.
 >
 > Portions of the content contain psychological control mechanisms that affect human perception, emotion, and cognitive processing. 
 > 
