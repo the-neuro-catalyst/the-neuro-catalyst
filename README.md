@@ -90,6 +90,6 @@ I do not seek power, for I have realized within myself that I possess it without
 ## **Funding:**
 Platforms: Soon!
 
-*"I don't want to know who is funding this, just as no one wants to publicly disclose their sponsorship."*
+*"I don't want to know who is funding this, just as no one wants to publicly disclose their sponsorship. However, for those who wish to disclose their names, I can process it as usual."*
 
 > My job is simply to utilize the resources provided to elevate human intelligence and benefit the world and humanity."
