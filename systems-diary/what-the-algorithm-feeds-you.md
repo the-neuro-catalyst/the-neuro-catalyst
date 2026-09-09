@@ -15,7 +15,12 @@ I am not saying capitalism is inherently bad; I am saying superficial capitalism
 
 I am not saying they lack intelligence; I am saying they lack wisdom—and the results speak for themselves.
 
-*"Ignorance ≠ Stupidity, just as Intelligence ≠ Wisdom."*
+
+- ​Ignorance + Stupidity ≠ Evil
+- ​Intelligence + Goodness ≠ Wisdom
+- ​Wisdom = Outcomes that are consistently positive and beneficial
+
+*"​That is a fact, not just a philosophy."*
 
 ---
 
@@ -35,6 +40,8 @@ September 10, 2026 - 1:11 AM (Asia/Bangkok)
 
 ผมไม่ได้บอกว่าพวกเขาไม่ฉลาด แต่ผมบอกว่าพวกเขาขาดปัญญา และผลลัพธ์มันประจักษ์ให้เห็นแล้ว
 
-*"ความเขลา ≠ ความโง่ เช่นเดียวกันกับที่ ความฉลาด ≠ ปัญญา"*
+- ความเขลา + ความโง่ ≠ ความเลว
+- ความฉลาด + ความดี ≠ ปัญญา
+- ปัญญา = ผลลัพธ์ที่เป็นประโยชน์ในทางบวกเสมอ
 
-
+*"นั่นคือข้อเท็จจริง ไม่ใช่ปรัชญา"*
