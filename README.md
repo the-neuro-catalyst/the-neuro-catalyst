@@ -9,6 +9,7 @@
 - [Paradigm Shift Economics](./paradigm-shift-economics.md)
 
 - [Systems Diary](./systems-diary)
+     - [What the Algorithm Feeds You When You're Not Looking](./systems-diary/what-the-algorithm-feeds-you.md)
 
 - [Music Diary](./music-diary)
     - [Authority](./music-diary/authority.md)
