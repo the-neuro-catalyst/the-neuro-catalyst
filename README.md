@@ -1,6 +1,7 @@
 # The Neuro-Catalyst
 
 ## Table of Contents
+- [The Truth About AI/LLM](https://github.com/the-neuro-catalyst/llm)
 
 - Knowledge Base
       
